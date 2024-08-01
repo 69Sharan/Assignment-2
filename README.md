@@ -1,1 +1,1 @@
-**Assignment - 2**
+**Assignment - 2 consists of Statistics & Probability**
